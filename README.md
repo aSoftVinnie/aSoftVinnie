@@ -2,7 +2,8 @@
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀꒦ˎˊ˗ ︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶ ꒦꒷꒦₊˚
 
-idk what to put here yet BUT don't be fooled megumi fushiguro is only one of the many fictional men who live in my head rent free
+other than the basics there's not really anything else to say about myself, i just made this to have a megumi fushiguro aesthetic because he deserves it <3
+if you're really interested though, you can always check my carrd which will be more in depth about the animes and games i'm obsessed with
 
 ⠀
 
