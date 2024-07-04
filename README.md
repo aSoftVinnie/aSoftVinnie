@@ -1,6 +1,6 @@
 ![image](https://github.com/aSoftVinnie/aSoftVinnie/assets/30376093/49f082bf-9ed9-479f-94a4-b46635976462)
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀꒦ˎˊ˗ ︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶ ꒦꒷꒦₊˚
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀꒦ˎˊ˗ ︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶ ꒦꒷꒦₊˚
 
 idk what to put here yet BUT don't be fooled megumi fushiguro is only one of the many fictional men who live in my head rent free
 
