@@ -7,7 +7,7 @@ if you're really interested though, you can always check my carrd which will be 
 
 or you can stare at these stamps because i spent way too much time looking for them </3
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀꒦ˎˊ˗ ︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶ ꒦꒷꒦₊˚
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀꒦ˎˊ˗ ︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶ ꒦꒷꒦₊˚
 
 ![image](https://github.com/aSoftVinnie/aSoftVinnie/assets/30376093/d47a9d0c-eda1-4c32-a65e-477878125b30)
 
