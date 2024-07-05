@@ -4,7 +4,7 @@
 
 there's not really anything else to say about myself, i just made this to have a megumi fushiguro aesthetic because he deserves it <3
 
-if you're really interested though, you can always check my carrd which will be more in depth about the animes and games i'm obsessed with, my interests and any boundaries!
+if you're really interested though, you can always check my carrd which will be more in depth about the animes and games i'm obsessed with, my overall interests and anything else i ended up thinking about honestly.
 
 or you can stare at these stamps because i spent way too much time looking for them </3
 
