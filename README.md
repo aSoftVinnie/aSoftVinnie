@@ -2,9 +2,7 @@
 
 
 there's not really anything else to say about myself, i just made this to spam stamps and fictional men i like.
-
 if you're really interested though, you can always check my carrd which will be more in depth about me!
-
 or you can stare at these stamps because i spent way too much time looking for them </3
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀꒦ˎˊ˗ ︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶ ꒦꒷꒦₊˚
