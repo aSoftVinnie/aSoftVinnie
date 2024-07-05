@@ -1,7 +1,7 @@
 ![image](https://github.com/aSoftVinnie/aSoftVinnie/assets/30376093/49f082bf-9ed9-479f-94a4-b46635976462)
 
 
-there's not really anything else to say about myself, i just made this to spam stamps and fictional men i adore.
+there's not really anything else to say about myself, i just made this to spam stamps and fictional men i like.
 
 if you're really interested though, you can always check my carrd which will be more in depth about me!
 
