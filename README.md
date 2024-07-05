@@ -16,6 +16,7 @@ if you're really interested though, you can always check my carrd which will be 
 
 
 
-
+![free_to_use___dottore_masked_pixel_icon___ps_by_doosio_dg7ommx](https://github.com/aSoftVinnie/aSoftVinnie/assets/30376093/0784603e-22a2-4d75-a2ca-eab822def3b1) ![free_to_use_wriothesley_icon___psd_by_doosio_dh2ovqa](https://github.com/aSoftVinnie/aSoftVinnie/assets/30376093/0ca6c8bd-e0aa-4a71-b907-0853a05a2281)
+![free_to_use___alhaitham_pixel_icon___psd_by_doosio_dfv3vnp](https://github.com/aSoftVinnie/aSoftVinnie/assets/30376093/fe08910e-a906-4e15-b4f0-5fefac2d8a86) ![free_to_use___kaveh_pixel_icon___psd_and_sketch_by_doosio_dg1eaw9](https://github.com/aSoftVinnie/aSoftVinnie/assets/30376093/617471fd-97bb-4ce2-9fd9-1fd6a252b6ab)
 
 
